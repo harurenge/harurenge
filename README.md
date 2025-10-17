@@ -2,14 +2,13 @@
 
 
 <div align="center">
- <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=9C0C95&style=flat-square&label=you+are+the+dancing+queen+!+young+and+sweet+,+only+seventeen+;+>
+ <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=383885&style=flat-square&label=jinmao+4+lyfe;+>
 
    <br>
 <br>
 
-![image](https://github.com/user-attachments/assets/afe8bd77-a877-4950-987c-445a2e0745c4)
+![image](https://github.com/user-attachments/assets/dc987cbc-5991-44b8-8802-f3c39b098588)
 
-[rentry](https://rentry.co/cien-fleur)‎ ‎ ‎ ‎ ‎ [atabook](https://kyotama.atabook.org)‎ ‎ ‎ ‎ ‎ [pronouns.cc](https://pronouns.cc/@kyotama)
   
    <div align="center">
   
