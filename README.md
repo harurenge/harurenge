@@ -2,7 +2,7 @@
 
 
 <div align="center">
- <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=FF5783&style=flat-square&label=harurenge+💫+>
+ <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=FF5783&style=flat-square&label=+💫+>
 
    <br>
 <br>
