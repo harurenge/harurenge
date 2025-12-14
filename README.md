@@ -2,13 +2,13 @@
 
 
 <div align="center">
- <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=FF5783&style=flat-square&label=+💫+>
+ <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=3f80b5&style=flat-square&label=+i'm+here+to+save+you+,+utahime+!+>
 
    <br>
 <br>
 
 
-<img src="https://64.media.tumblr.com/2b25ff8285837fb673bc2a25016fd769/a6d5a7e97a4a7196-6c/s1280x1920/10afb30c8590383cbebebdb312a01e0842a6a4c8.jpg" width="400" height="600" />
+<img src="https://64.media.tumblr.com/2d7fa9ffe992ad8a8d54a4ed44de6a57/d9275b37ff0b12ea-6d/s1280x1920/8ae038a35ef07dd57ce295ed674de85a29198865.jpg" width="500" height="600" />
   
    <div align="center">
   
