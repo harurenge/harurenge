@@ -7,9 +7,9 @@
   <br>
   <br>
 
-<img src="https://64.media.tumblr.com/1ae09dc4adfe19204aac8682fbce2d6d/1931c934f6e8330d-96/s1280x1920/e14cc239e10211aea9491b735154a5c588ee3d97.pnj" width="300" height="400" />
+<img src="https://64.media.tumblr.com/66662849d89f1bbf0a40d9cc5f163071/37c582fea33d36cc-7d/s640x960/24e6d2defe9406dff208809dfd34cc0f3f6f3a41.gif" width="500" height="600" />
 
- <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=3f80b5&style=flat-square&label=+love+is+the+most+twisted+curse+of+all+☆+>
+ <h5 align=center>  <img src=https://komarev.com/ghpvc/?username=leopikaed&color=f02483&style=flat-square&label=+⭑
   
    <div align="center">
   
